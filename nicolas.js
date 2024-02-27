@@ -1,1 +1,1 @@
-oi meu mestre
+oimeumestre.rei
